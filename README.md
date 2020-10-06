@@ -1,1 +1,1 @@
-![](https://byob.yarr.is/wk-j/wk-j/time)
+<a href="https://wakatime.com"><img src="https://wakatime.com/share/@wearetherock/2d8dc833-c146-40a7-86c3-0b05471cf927.png" /></a>
